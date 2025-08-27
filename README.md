@@ -1,2 +1,3 @@
 # TOUCH_SYNTH_PHASE_DISTORTION_DCO
 TOUCH_SYNTH_PHASE_DISTORTION_DCO
+https://www.youtube.com/watch?v=vLzowKe_s04
